@@ -2,7 +2,7 @@
 
 **来源：** [100font网站](https://www.100font.com/)
 
-- [链接1](https://pan.baidu.com/s/18-oaLmT2RFFC3Mvi9YfDTQ ) | 提取码: 67ul 
+- [链接1](https://pan.baidu.com/s/1M367CZ71sparIZjP8B8JDg ) | 提取码: pe9v
 
 - 示例：
 
@@ -18,5 +18,9 @@
 ![](./assets/yinshuaziti.png)
 
 #### 韩文
+
+**来源**：[naver](https://www.naver.com/)
+
+- [链接1](https://pan.baidu.com/s/1OFe1e92xeOJ2K_FRAJmrtA)  | 提取码: qp98
 
 #### 持续更新中…
