@@ -18,6 +18,8 @@
 - 示例：
 
     ![](./assets/shouxieziti.png)
+- 其他下载网站
+  - [字体天下](https://www.fonts.net.cn/fonts-zh/tag-shouxie2-1.html)
 
 ### 中英印刷体
 
